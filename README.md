@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @ludszix
-- 👀 I’m interested in games
-- 🌱 I’m currently learning ...
 - ⚡ Fun fact: HELL YEAAAAAAAAAAAAAAAAAA🦅🦅🦅🦅🦅🦅🦅🦅🦅🦅🦅🦅🦅🦅
 
 <!---
